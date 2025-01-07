@@ -1,16 +1,19 @@
-## Hi there 👋
+# AFLAH ZAMAN  
+**Web Specialist | SEO | Consultant**  
 
-<!--
-**aflahzaman/aflahzaman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+📍 Location: Kerala, India  
+📧 Email: hello@aflahzaman.com  
+🌐 Website: [AFLAHZAMAN.COM](https://www.aflahzaman.com/) -Currently Under Construction!  
+🔗 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/aflahzaman)  
+🔗 GitHub: [GitHub Profile](https://github.com/aflahzaman)  
+🔗 Google: i'm busy, i will update this later!  
+🔗 X/Twitter: i'm busy, i will update this later!  
+🔗 YouTube: i'm busy, i will update this later!  
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Welcome to my GitHub profile! Feel free to reach out if you'd like to collaborate or have business inquiries. Let's create something amazing together!
+
+🚀 Start small.. Dream BiG  
+➡️ Keep it simple!
+
