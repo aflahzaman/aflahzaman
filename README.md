@@ -11,8 +11,8 @@
 **🦋 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)**   
 **🌐 Google: i'm busy, i will update this later!**   
 **🔗 X/Twitter: i'm using bluesky. because i like open-source.**      
-**📧 Email: [visit my website](https://aflahzaman.com/)**   
-**📱 Mobile: [visit my website](https://aflahzaman.com/)**   
+**📧 Email: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
+**📱 Mobile: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
 
 ---
 
