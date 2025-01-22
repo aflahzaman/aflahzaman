@@ -8,7 +8,7 @@
 🔗 YouTube: [AFLAHZAMAN.COM/YouTube](https://aflahzaman.com/youtube)   
 🔗 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)   
 🔗 Google: i'm busy, i will update this later!   
-🔗 X/Twitter: i'm busy, i will update this later!   
+🔗 X/Twitter: i'm using bluesky. i like open-source. but, my social profiles can be found on my website.   
 📧 Email: [visit website](https://aflahzaman.com/)
 ---
 
