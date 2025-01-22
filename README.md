@@ -5,8 +5,8 @@
 **🌐 Website: [AFLAHZAMAN.COM](https://aflahzaman.com/)**  
 
 
-**🪪 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/aflahzaman)**  
-**💻 GitHub: [GitHub Profile](https://github.com/aflahzaman)**  
+**🪪 LinkedIn: [linkedin.com/in/aflahzaman](https://www.linkedin.com/in/aflahzaman)**  
+**💻 GitHub: [github.com/aflahzaman](https://github.com/aflahzaman)**  
 **▶️ YouTube: [youtube.com/@aflahzaman](https://www.youtube.com/@aflahzaman?sub_confirmation=1)**   
 **🦋 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)**   
 **🌐 Google: i'm busy, i will update this later!**   
