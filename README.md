@@ -9,8 +9,9 @@
 **💻 GitHub: [github.com/aflahzaman](https://github.com/aflahzaman)**  
 **▶️ YouTube: [youtube.com/@aflahzaman](https://www.youtube.com/@aflahzaman?sub_confirmation=1)**   
 **🦋 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)**   
-**🌐 Google: [g.dev/aflahzaman](https://g.dev/aflahzaman)**   
 **🔗 X/Twitter: i'm using bluesky. because i like open-source.**      
+**🌐 Google: [g.dev/aflahzaman](https://g.dev/aflahzaman)**   
+
 **📧 Email: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
 **📱 Mobile: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
 
