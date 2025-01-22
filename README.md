@@ -1,7 +1,7 @@
 # AFLAH ZAMAN  
 **Web Specialist | SEO | Consultant**  
 
-📍 Location: Kerala, India    
+📍 Location: Kerala, India.    
 🌐 Website: [AFLAHZAMAN.COM](https://aflahzaman.com/)  
 🔗 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/aflahzaman)  
 🔗 GitHub: [GitHub Profile](https://github.com/aflahzaman)  
@@ -9,7 +9,7 @@
 🔗 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)   
 🔗 Google: i'm busy, i will update this later!   
 🔗 X/Twitter: i'm using bluesky. because i like open-source.      
-📧 Email: [visit website](https://aflahzaman.com/)
+📧 Email: [visit my website](https://aflahzaman.com/)
 ---
 
 Welcome to my GitHub profile! Feel free to reach out if you'd like to collaborate or have business inquiries. Let's create something amazing together!
