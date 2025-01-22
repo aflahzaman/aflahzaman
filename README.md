@@ -6,8 +6,8 @@
 🔗 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/aflahzaman)  
 🔗 GitHub: [GitHub Profile](https://github.com/aflahzaman)  
 🔗 YouTube: [AFLAHZAMAN.COM/YouTube](https://aflahzaman.com/youtube)   
-🔗 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com) 
-🔗 Google: i'm busy, i will update this later!  
+🔗 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)   
+🔗 Google: i'm busy, i will update this later!   
 🔗 X/Twitter: i'm busy, i will update this later!   
 📧 Email: [visit website](https://aflahzaman.com/)
 ---
