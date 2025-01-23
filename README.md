@@ -17,8 +17,8 @@ Known for his expertise in personalized website, SEO, website management, projec
 **🔗 X/Twitter: i'm using bluesky. because i like open-source.**      
 **🌐 Google: [Google Developer Profile](https://g.dev/aflahzaman)**   
 
-**📧 Email: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
-**📱 Mobile: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
+**📧 Email: Redacted due to spam [visit official website for contact](https://aflahzaman.com/)**   
+**📱 Mobile: Redacted due to spam [visit official website for contact](https://aflahzaman.com/)**   
 
 ---
 
