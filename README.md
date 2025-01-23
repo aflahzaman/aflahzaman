@@ -13,7 +13,7 @@ Known for his expertise in web project consultation, personalized website creati
 **▶️ YouTube: [youtube.com/@aflahzaman](https://www.youtube.com/@aflahzaman?sub_confirmation=1)**   
 **🦋 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)**   
 **🔗 X/Twitter: i'm using bluesky. because i like open-source.**      
-**🌐 Google: [g.dev/aflahzaman](https://g.dev/aflahzaman)**   
+**🌐 Google: [Google Developer Profile](https://g.dev/aflahzaman)**   
 
 **📧 Email: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
 **📱 Mobile: Redacted due to spam [visit my website](https://aflahzaman.com/)**   
