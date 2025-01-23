@@ -4,9 +4,9 @@
 **📍 From: Kerala, India.**    
 **🌐 Website: [AFLAHZAMAN.COM](https://aflahzaman.com/)**  
 
-Aflah Zaman, also referred to as Aflu or Zaman, is a dedicated professional who specializes in helping individuals and businesses establish and manage their online presence. With a web-based approach, he focuses on simplifying the complexities of the digital world, offering solutions that empower clients to grow and thrive in an highly competitive online landscape filled with latest technology Innovations like, artificial inteligence, automation, etc..
+Aflah Zaman, also referred to as Aflu or Zaman, is a dedicated professional who specializes in helping individuals and businesses establish and manage their online presence. With a web-based approach, he focuses on simplifying the complexities of the digital world, offering solutions that empower clients to grow and thrive in an highly competitive online landscape filled with latest technology Innovations like, artificial inteligence, automation, web3 and blockchain technology, etc..
 
-Known for his expertise in web project consultation, personalized website creation, SEO, and website management, etc.. Aflah Zaman (or Aflu, as many call him) is committed to delivering personalised services that align with each client’s unique vision and goals. His mission is to make the digital space accessible and impactful, enabling businesses and individuals to leave a lasting impression online. Whether you know him as Aflah, Aflu, or Zaman, his goal remains the same — to help you navigate and succeed in the highly-evolving online digital world.
+Known for his expertise in personalized website, SEO, and website management, project management, online strategy etc.. Aflah Zaman (or Aflu, as many call him) is committed to delivering personalised services that align with each client’s unique vision and goals. His mission is to make the digital space accessible and impactful, enabling businesses and individuals to leave a lasting impression online. Whether you know him as Aflah, Aflu, or Zaman, his goal remains the same — to help you navigate and succeed in the highly-evolving online digital world.
 
 **🪪 LinkedIn: [linkedin.com/in/aflahzaman](https://www.linkedin.com/in/aflahzaman)**  
 **💻 GitHub: [github.com/aflahzaman](https://github.com/aflahzaman)**  
