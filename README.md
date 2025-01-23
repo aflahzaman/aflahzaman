@@ -20,7 +20,7 @@ Known for his expertise in personalized website, SEO, website management, projec
 
 ---
 
-Thank you for visiting my GitHub profile! Feel free to **[reach out](https://aflahzaman.com/)** if you'd like to collaborate or have business inquiries. Let's create something amazing together!
+Thank you for visiting my GitHub profile! Feel free to **[reach out](https://aflahzaman.com/)** if you'd like to collaborate, business inquiries or have interesting ideas. Let's create something amazing together!
 
 🚀 Start small.. Dream BiG  
 ➡️ Keep it simple!
