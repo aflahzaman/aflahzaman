@@ -3,7 +3,8 @@
 **📍 From: Kerala, India.**    
 **🌐 Website: [AFLAHZAMAN.COM](https://aflahzaman.com/)**  
 
-Aflah Zaman is known for his expertise in personalized and accessibility optimized website creation, search engine optimization, local business seo, website management, etc.. he is committed to delivering personalized services that align with each brand’s unique vision and goals. His mission is to make the online digital spaces clear, well structured, secure, accessible and impactful for both businesses and individuals to leave a simple, lasting impression online. Whether you know him as Aflah, Aflu, or Zaman, his goal remains the same - to help you navigate and succeed in the highly-evolving online digital world. **[Learn more About: AFLAH ZAMAN](https://aflahzaman.com/about/)**
+Aflah Zaman is known for his expertise in personalized and accessibility optimized website creation, search engine optimization, local business seo, website management, etc.. he is committed to delivering personalized services that align with each brand’s unique vision and goals. His mission is to make the online digital spaces clear, well structured, secure, accessible and impactful for both businesses and individuals to leave a simple, lasting impression online. Whether you know him as Aflah, Aflu, or Zaman, his goal remains the same - to help you navigate and succeed in the highly-evolving online digital world. 
+**[Learn more About: AFLAH ZAMAN](https://aflahzaman.com/about/)**
 
 ---
 
