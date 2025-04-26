@@ -1,5 +1,4 @@
 # AFLAH ZAMAN  
-**Web Specialist | SEO | Consultant**  
 
 **📍 From: Kerala, India.**    
 **🌐 Website: [AFLAHZAMAN.COM](https://aflahzaman.com/)**  
