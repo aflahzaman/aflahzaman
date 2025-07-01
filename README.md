@@ -23,7 +23,7 @@ I help businesses and content creators build, grow, and manage their online pres
 **🪪 LinkedIn: [linkedin.com/in/aflahzaman](https://www.linkedin.com/in/aflahzaman)**  
 **▶️ YouTube: [youtube.com/@aflahzaman](https://www.youtube.com/@aflahzaman?sub_confirmation=1)**   
 **🦋 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)**   
-**🔗 X/Twitter: not using X(twitter). i'm using bluesky social -An Alternative to X(twitter)**      
+**🔗 X/Twitter: not using X(twitter). i'm using [bluesky social](https://bsky.app/profile/aflahzaman.com) -An Alternative to X(twitter)**      
 
 **📧 Email: Redacted due to spam [visit official website for contact](https://aflahzaman.com/)**   
 **📱 Mobile: Redacted due to spam [visit official website for contact](https://aflahzaman.com/)**   
