@@ -5,12 +5,14 @@
 
 AFLAH ZAMAN is a dedicated professional focused on driving organic growth and enhancing online presence for businesses. With a robust background in Search Engine Optimization (SEO) and digital strategy, he leverages technical expertise and strategic insights to help companies achieve top search engine rankings and sustainable online success.
 
+
 **Expertise & Focus Areas:**
 - Search Engine Optimization (SEO): Specializing in technical SEO, on-page optimization, keyword strategy, and local SEO to maximize organic visibility and traffic.
 - Digital Strategy Development: Crafting comprehensive digital roadmaps that integrate SEO with broader marketing goals, focusing on measurable outcomes and ROI.
 - Web Development & Optimization: Experienced in website architecture, performance optimization, and responsive design, ensuring a strong technical foundation for digital assets.
 - Online Presence Management: Guiding businesses in building, maintaining, and enhancing their digital footprint across various platforms.
 - Entrepreneurship: Passionate about empowering founders and small businesses with the tools and knowledge to thrive in the digital economy.
+
 
 **What I Do:**  
 I help businesses and content creators build, grow, and manage their online presence through smart, personalized strategies. My work involves a blend of technical implementation, strategic planning, and continuous optimization to ensure long-term digital ascendancy.
