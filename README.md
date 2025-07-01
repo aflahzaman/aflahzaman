@@ -19,13 +19,11 @@ AFLAH ZAMAN is a dedicated professional focused on driving organic growth and en
 I help businesses and content creators build, grow, and manage their online presence through smart, personalized strategies. My work involves a blend of technical implementation, strategic planning, and continuous optimization to ensure long-term digital ascendancy.
 
 ---
-
+**🌐 Official Website: [AFLAHZAMAN.COM](https://aflahzaman.com)**  
 **🪪 LinkedIn: [linkedin.com/in/aflahzaman](https://www.linkedin.com/in/aflahzaman)**  
-**💻 GitHub: [github.com/aflahzaman](https://github.com/aflahzaman)**  
 **▶️ YouTube: [youtube.com/@aflahzaman](https://www.youtube.com/@aflahzaman?sub_confirmation=1)**   
 **🦋 Bluesky:  [bsky.app/profile/aflahzaman.com](https://bsky.app/profile/aflahzaman.com)**   
-**🔗 X/Twitter: i'm using bluesky. because i like open-source.**      
-**🌐 Google: [Google Developer Profile](https://g.dev/aflahzaman)**   
+**🔗 X/Twitter: not using X(twitter). i'm using bluesky social -An Alternative to X(twitter)**      
 
 **📧 Email: Redacted due to spam [visit official website for contact](https://aflahzaman.com/)**   
 **📱 Mobile: Redacted due to spam [visit official website for contact](https://aflahzaman.com/)**   
