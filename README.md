@@ -1,10 +1,19 @@
 # AFLAH ZAMAN  
 
-**📍 From: Kerala, India.**    
-**🌐 Website: [AFLAHZAMAN.COM](https://aflahzaman.com/)**  
+**SEO Consultant | Digital Strategist | Entrepreneur**  
 
-Aflah Zaman is known for his expertise in personalized and accessibility optimized website creation, search engine optimization, local business seo, website management, etc.. he is committed to delivering personalized services that align with each brand’s unique vision and goals. His mission is to make the online digital spaces clear, well structured, secure, accessible and impactful for both businesses and individuals to leave a simple, lasting impression online. Whether you know him as Aflah, Aflu, or Zaman, his goal remains the same - to help you navigate and succeed in the highly-evolving online digital world.  
-**[Learn more About: AFLAH ZAMAN](https://aflahzaman.com/about/)**
+
+AFLAH ZAMAN is a dedicated professional focused on driving organic growth and enhancing online presence for businesses. With a robust background in Search Engine Optimization (SEO) and digital strategy, he leverages technical expertise and strategic insights to help companies achieve top search engine rankings and sustainable online success.
+
+**Expertise & Focus Areas:**
+- Search Engine Optimization (SEO): Specializing in technical SEO, on-page optimization, keyword strategy, and local SEO to maximize organic visibility and traffic.
+- Digital Strategy Development: Crafting comprehensive digital roadmaps that integrate SEO with broader marketing goals, focusing on measurable outcomes and ROI.
+- Web Development & Optimization: Experienced in website architecture, performance optimization, and responsive design, ensuring a strong technical foundation for digital assets.
+- Online Presence Management: Guiding businesses in building, maintaining, and enhancing their digital footprint across various platforms.
+- Entrepreneurship: Passionate about empowering founders and small businesses with the tools and knowledge to thrive in the digital economy.
+
+What I Do:
+I help businesses and content creators build, grow, and manage their online presence through smart, personalized strategies. My work involves a blend of technical implementation, strategic planning, and continuous optimization to ensure long-term digital ascendancy.
 
 ---
 
