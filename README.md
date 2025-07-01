@@ -12,7 +12,7 @@ AFLAH ZAMAN is a dedicated professional focused on driving organic growth and en
 - Online Presence Management: Guiding businesses in building, maintaining, and enhancing their digital footprint across various platforms.
 - Entrepreneurship: Passionate about empowering founders and small businesses with the tools and knowledge to thrive in the digital economy.
 
-**What I Do:** 
+**What I Do:**
 I help businesses and content creators build, grow, and manage their online presence through smart, personalized strategies. My work involves a blend of technical implementation, strategic planning, and continuous optimization to ensure long-term digital ascendancy.
 
 ---
