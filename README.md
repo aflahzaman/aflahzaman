@@ -1,9 +1,11 @@
 # AFLAH ZAMAN  
 
-**Digital Strategist | Entrepreneur | Consultant**  
+**Digital Strategist | Business Systems Consultant**  
 
 
-AFLAH ZAMAN is a dedicated professional focused on driving organic growth and enhancing online presence for businesses. With a robust background in Search Engine Optimization (SEO) and digital strategy, he leverages technical expertise and strategic insights to help companies achieve top search engine rankings and sustainable online success.
+AFLAH ZAMAN is a digital strategist and business systems consultant specializing in building scalable digital infrastructures, high performance websites, and long term growth systems for founders, creators, and businesses. Since 2019, he has been working across digital strategy, SEO, web development, automated online systems, and online presence optimization to help brands grow with clarity and confidence.  
+His focus is to design online digital systems that work quietly, reliably, and efficiently, so businesses can scale without friction.
+With a systems engineer mindset and a strategist’s perspective, he integrates modern web technologies, automation frameworks, and AI assisted workflows to create digital ecosystems that compound in value over time.  
 
 ---
 
