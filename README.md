@@ -3,7 +3,7 @@
 **Digital Strategist | Business Systems Consultant**  
 
 
-AFLAH ZAMAN is a digital strategist and business systems consultant specializing in building scalable digital infrastructures, high performance websites, and long term growth systems for founders, creators, and businesses. Since 2019, he has been working across digital strategy, SEO, web development, automated online systems, and online presence optimization to help brands grow with clarity and confidence.  
+Aflah Zaman is an Entrepreneur, Digital Strategist & Business Systems Consultant | Specializes in Web Architecture, Brand SEO and Digital Strategy. Since 2019, he has been working across digital strategy, SEO, web development, automated online systems, and online presence optimization to help brands grow with clarity and confidence.  
 His focus is to design online digital systems that work quietly, reliably, and efficiently, so businesses can scale without friction.
 With a systems engineer mindset and a strategist’s perspective, he integrates modern web technologies, automation frameworks, and AI assisted workflows to create digital ecosystems that compound in value over time.  
 
